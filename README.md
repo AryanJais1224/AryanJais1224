@@ -1,4 +1,4 @@
-Hi there 👋
+Hey folks 👋
 
 - 🌱 I’m learning daily so don't be surprised to see me here everyday
 - 😄 Pronouns: he/him
